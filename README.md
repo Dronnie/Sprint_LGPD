@@ -1,0 +1,2 @@
+# Sprint_LGPD
+Temporário.
